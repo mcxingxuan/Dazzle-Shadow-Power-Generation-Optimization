@@ -18,3 +18,7 @@ Suitable for survival, power generation, and beginner players
 红石轻松建造生存辅助性能优化
 
 适合生存/生电/新手等玩家
+
+其他链接：
+
+https://dazzlingshadow.rth1.xyz
